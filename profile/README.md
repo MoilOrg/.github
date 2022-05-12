@@ -1,4 +1,4 @@
 ## Hi there 👋
 
-**Welcome to Ming Chi Omnidirectional surveillance imaging labolatory organization**
+**Welcome to Ming Chi Omnidirectional surveillance imaging laboratory organization**
 
